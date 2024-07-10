@@ -1,2 +1,2 @@
 # Site-beyblade
-#Para comhecer o personagens
+#Para conhecer o personagens!
